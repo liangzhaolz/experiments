@@ -1,6 +1,6 @@
 ## Experiments
 
-Participants needed! I am runing all the experiments *online* at the moment. You only need a laptop/desktop/tablet/mobile phone and preferably a quiet room to complete some speech-related tasks. If you are interested participating in the following experiments, feel free to email me. Your participation will be highly appreciated!
+Participants needed! I am running all the experiments *online* at the moment. You only need a laptop/desktop/tablet/mobile phone and preferably a quiet room to complete some speech-related tasks. If you are interested participating in the following experiments, feel free to email me. Your participation will be highly appreciated!
 
 Latest update: 16/December/2021
 
