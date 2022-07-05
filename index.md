@@ -4,7 +4,7 @@ Participants needed! I am running all the experiments *online* at the moment. Yo
 
 Latest update: 16/December/2021
 
-Valid until: June/2022
+Valid until: Nov/2022
 
 ### Mandarin dialect production
 
